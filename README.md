@@ -1,5 +1,4 @@
-# FILL IN INFO ABOUT YOUR GAME HERE. 
+Finals Game 
 
-DO NOT LEAVE IT LIKE THIS!!!
+Dancing on your keyboard
 
-Please? Please, give me content. I'm begging you. It's not that hard. Thanks.
